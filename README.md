@@ -1,3 +1,0 @@
-# aulapoo
-# aulapoo
-# aulapoo
